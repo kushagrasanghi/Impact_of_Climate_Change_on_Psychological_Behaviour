@@ -1,4 +1,4 @@
-# Impact_of_Climate_Change_on_Psychological_Behaviour-
+# Impact_of_Climate_Change_on_Psychological_Behaviour
 
 Climate change harms mental well-being in a number of ways. From trauma and stress following disasters, to relationship damage caused by separation and displacement, the psychological effects of climate change can be enduring. Of course, these effects are heightened for certain vulnerable populations, such as elderly and low-income people, as well as those on the frontlines of climate change.
 
